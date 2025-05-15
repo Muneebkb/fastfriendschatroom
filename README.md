@@ -1,0 +1,1 @@
+# Fast Friends - Pandemic Edition
